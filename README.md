@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Debadrita0316
-- 🌱 I’m currently learning in B.Tech 1st year student in ITER, SOA, Bhubaneswar, Odisha
+B.Tech 1st year student in ITER, SOA, Bhubaneswar, Odisha
 
 
 <!---
